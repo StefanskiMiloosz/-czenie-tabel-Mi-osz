@@ -1,0 +1,1 @@
+# -czenie-tabel-Mi-osz
